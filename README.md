@@ -1,0 +1,6 @@
+# 外汇交易软件系统FX7美股票交易软件系统fx7平台app其他MT4/MT5/ST5/Fx6软件平台
+
+特别声明：官方正版授权出售渠道商。<br><br>一、FX7外汇平台：到价预警功能<br><br>如果投资者在外汇中使用ST5平台，他们可以享受该平台的到价预警功能，这样的功能可以让投资者更有优势及灵活性。<br><br>二、FX7<br>外汇平台：图表绘制和分析功能<br><br>FX7平台本身也是强大、实用的软件。它不仅支持多种金融产品，更拥有强大的图表绘制和分析功能，如18种画线工具、9个时段图表选项、30种国际领先技术指标等，为外汇投资者及时获取市场资讯，对于正确判断市场趋势提供了很大的帮助。<br><br>三、FX7外汇平台：止盈止损功能<br><br>FX7平台可以把新单和现价同时设置止损价位及获利价位，使投资者可以在行情判断错误的情况下，将亏损控制在最小范围内，从而较大程度地保护投资者的利益。<br><br>四、SFX7外汇平台：挂单功能<br><br>在FX7软件上，投资者可以在理想的价格处设置挂单，当市场价到达所设定的价格时，系统就会自动建仓，及时抓住做单机会，为很多没有时间做单的投资者提供了方便的盈利机会。在FX7外汇平台上，挂单有4种方法，<br><br>五、语言版本：英语，日语，韩语，繁体中文，泰语，越南语，法语，德语，俄语，西班牙语，葡萄牙语，意大利语，阿拉伯语，土耳其语<br><br>六、找客服看演示效果<br><br><br><br><br><br><br><br><br><br><br><br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/NzNm3" style="color: red;">https://mega-file.org/NzNm3</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
